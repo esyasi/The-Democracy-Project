@@ -1,1 +1,1 @@
-# The-Democracy-Project
+# The Democracy Project
